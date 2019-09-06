@@ -7,4 +7,4 @@ I hope you like it!
 
 :)
 
-![MY FLAGS](/CaptureArt.PNG)
+![MY FLAGS](/Capture%20Art.PNG)
